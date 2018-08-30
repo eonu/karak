@@ -1,6 +1,6 @@
 # شاي كَرَك
 
-An strong Indian tea popularised in the Middle East (specifically in the Gulf regions of U.A.E, Oman, Qatar and Bahrain).
+A strong Indian tea widely consumed in the Middle East (specifically in the Gulf regions of U.A.E, Oman, Qatar and Bahrain).
 
 Many small cafeterias and restaurants run by South Asians tend to serve this tea in most areas of the U.A.E. But after asking around for recipes, most were unwilling to share their secrets.
 
