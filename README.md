@@ -38,7 +38,7 @@ So here's my recipe (with influence from a few YouTube videos).
 
 ### Optional
 
-- 3 strands of saffron (not safflower!)
+- 3 strands of saffron
 
 ## Method
 
@@ -64,5 +64,10 @@ So here's my recipe (with influence from a few YouTube videos).
 
 ## Suggestions
 
-- Once opened (if in a can), evaporated milk should be stored in a new container if being used again.
+- Once opened (if canned), evaporated milk should be stored in a new container if being used again.
+
+- If using saffron, make sure you use proper and good quality saffron. Don't buy American saffron, since this typically comes from the [safflower](https://en.wikipedia.org/wiki/Safflower) which is completely different to actual saffron.
+
+  I strongly recommend Persian-grown saffron as this is normally the most pure and high quality.
+
 - Drink while hot!
