@@ -13,7 +13,7 @@ So here's my recipe (with influence from a few YouTube videos).
 ## Equipment
 
 - 1 small cooking pot
-- 1 teacup (at least 1.5 cups or 360ml capacity)
+- 1 teacup (at least 1 + 1/2 cups or 360ml capacity)
 - Measuring cups (1 and 1/2 cups) (not necessary if your teacup is exactly 1.5 cups)
 - 2 tablespoons
 - 1 teaspoon
@@ -22,7 +22,7 @@ So here's my recipe (with influence from a few YouTube videos).
 
 ## Ingredients
 
-- 1.5 cups (360ml) of water
+- 1 + 1/2 cups (360ml) of water
 
 - Loose black tea (one teabag equivalent)
 
@@ -32,9 +32,9 @@ So here's my recipe (with influence from a few YouTube videos).
   >
   > If you can't get cardamom flavoured evaporated milk, you can substitute it for the same quantity of unflavoured evaporated milk and a few cardamom pods.
 
-- 1/4 ground ginger
-- 1/4 ground cinnamon
-- 1.5 teaspoons of sugar
+- 1/4 teaspoon of ground ginger
+- 1/4 teaspoon of ground cinnamon
+- 1 + 1/2 teaspoons of sugar
 
 ### Optional
 
