@@ -22,19 +22,23 @@ So here's my recipe (with influence from a few YouTube videos).
 
 ## Ingredients
 
-- 1 + 1/2 cups (360ml) of water
-
 - Loose black tea (one teabag equivalent)
+
+- 1/2 teaspoon of ground ginger
+
+- 1/4 teaspoon of ground cardamom (or one cardamom pod)
+
+- 1/4 teaspoon of ground cinnamon
+
+- 1 + 1/2 teaspoons of sugar
+
+- 1 + 1/2 cups (360ml) of water
 
 - 4 tablespoons of cardomom flavoured evaporated milk
 
   > I typically use [Rainbow milk](https://www.google.com/search?q=rainbow+evaporated+cardamom+milk), but this might not be available in other countries.
   >
-  > If you can't get cardamom flavoured evaporated milk, you can substitute it for the same quantity of unflavoured evaporated milk and a few cardamom pods.
-
-- 1/4 teaspoon of ground ginger
-- 1/4 teaspoon of ground cinnamon
-- 1 + 1/2 teaspoons of sugar
+  > If you can't get cardamom flavoured evaporated milk, you can substitute it for the same quantity of unflavoured evaporated milk and add more cardamom powder/pods.
 
 ### Optional
 
