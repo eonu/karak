@@ -2,7 +2,7 @@
 
 A strong Indian tea widely consumed in the Middle East (specifically in the Gulf regions of U.A.E, Oman, Qatar and Bahrain).
 
-Many small cafeterias and restaurants run by South Asians tend to serve this tea in most areas of the U.A.E. But after asking around for recipes, most were unwilling to share their secrets.
+Many small cafeterias and restaurants run by South Asians tend to serve this tea in most areas of the U.A.E. But after asking around for recipes in Dubai, most were unwilling to share their secrets.
 
 So here's my recipe (with influence from a few YouTube videos).
 
@@ -22,7 +22,7 @@ So here's my recipe (with influence from a few YouTube videos).
 
 ## Ingredients
 
-- Loose black tea (one teabag equivalent)
+- Loose black tea (two teabags equivalent)
 
 - 1/2 teaspoon of ground ginger
 
@@ -30,7 +30,7 @@ So here's my recipe (with influence from a few YouTube videos).
 
 - 1/4 teaspoon of ground cinnamon
 
-- 1 + 1/2 teaspoons of sugar
+- 2 teaspoons of sugar
 
 - 1 + 1/2 cups (360ml) of water
 
